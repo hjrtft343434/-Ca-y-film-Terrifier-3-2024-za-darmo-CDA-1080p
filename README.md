@@ -10,7 +10,7 @@ Terrifier 3 2024 Cały film online, strumieniowanie filmów w najlepszej jakośc
 
 ᐅᐅ https://weflix.cloud/pl/movie/917496/beetlejuice-beetlejuice-gitcode
 
-Terrifier 3 ( 2024) Po rodzinnej tragedii trzy pokolenia rodziny Deetz wracają do domu w Winter River. Życie Lydii, wciąż nawiedzanej przez Sok z Żuka, wywraca się do góry nogami, gdy jej nastoletnia córka Astrid przypadkowo otwiera portal do Zaświatów.
+Terrifier 3 ( 2024) Pięć lat po przeżyciu halloweenowej masakry klauna Arta, Sienna i jej brat wciąż walczą o odbudowanie swojego zniszczonego życia. Gdy zbliża się okres świąteczny, starają się przyjąć ducha Bożego Narodzenia i zostawić za sobą okropności z przeszłości. Ale właśnie wtedy, gdy myślą, że są bezpieczni, Art powraca, zdeterminowany, by zmienić ich świąteczną radość w nowy koszmar. Okres świąteczny szybko się rozpada, gdy Art uwalnia swoją pokręconą markę terroru, udowadniając, że żadne święta nie są bezpieczne.
 
 Data premiery: 21 grudnia 2024 (Polska)
 
